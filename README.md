@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAOM861215HSLNSR09
+SAOM861215HSLNSR09
